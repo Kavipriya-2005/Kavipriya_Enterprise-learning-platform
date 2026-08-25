@@ -1,1 +1,1 @@
-Kavipriya_Enterprise-learning-nexus-fsd
+Kavipriya_Enterprise-learning-platform
